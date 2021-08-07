@@ -1,0 +1,1 @@
+# data_analysis_large_study_Ivermectin_for_the_treatment_of_Covid-19
